@@ -29,7 +29,7 @@
 ### 17:卢本伟音色库(https://pan.baidu.com/s/1JHoPevG5kh4ii2VrWJprjQ)
 ### 18:FBI开门绿幕(https://pan.baidu.com/s/1pC4YJGZRFiveOBeRQkgZwg)
 # 游戏区:
-### 1:逃离塔克夫()
+### 1:逃离塔克夫(https://pan.baidu.com/s/1x4fXTYdnPvTGaxyJowBU0A 提取码：0000 )
 # 绿色软件:
 ### 1:破解版酷我音乐（里面不用登陆就可以下载）(https://pan.baidu.com/s/1wuJoxar146KS3I0TtJ6txg 提取码：0000)
 #(您对这个网站满意么？不满意请加QQ，我们会努力做到最好!!!)
